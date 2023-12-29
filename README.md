@@ -1,8 +1,8 @@
-# Hello! I'm so glad you're here!
+# Hello!🤗 I'm so glad you're here!
 
 - It is very difficult to learn something new for yourself.
 - It's both scary and exciting to discover new
-- I hope you have fun
+- I hope you have fun🙏
 
 ---
 
